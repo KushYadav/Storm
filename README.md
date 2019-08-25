@@ -1,3 +1,3 @@
 # Storm
 
-![Screenshot_01](screen_01.png)
+![Screenshot_01](https://drive.google.com/open?id=1xneE_NHnBGHUZHDbiGrPytuCE-CWiLL4)
